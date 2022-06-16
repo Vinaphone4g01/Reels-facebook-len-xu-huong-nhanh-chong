@@ -1,2 +1,4 @@
 # Reels-facebook-len-xu-huong-nhanh-chong
 Cách để thước phim Facebook lên xu hướng nhanh chóng, tiếp cận nhiều người
+<p style="text-align: justify;"><a href="https://blogvn.org/cach-reals-facebook-len-xu-huong-nhanh.html"><strong>Cách để thước phim Facebook lên xu hướng</strong></a> thu hút người xem phải làm thế nào? Nếu bạn muốn thước phim của mình được nhiều người thích, lên xu hướng nhanh chóng thì đừng bỏ lỡ bài viết dưới đây của <a href="http://Blogvn.org" target="_blank" rel="noopener">Blogvn.org</a>.</p>
+Là một nhà sáng tạo nội dung trên các mạng xã hội thì không nên bỏ lỡ Reels trên Faecbook. Mặc dù mới ra đời chưa lâu nhưng tính năng này đang được giới trẻ yêu chuộng. Không cần thông qua ứng dụng thứ 3, giờ đây bạn có thể tạo riêng cho mình những video để đời cực chất, không đụng hàng.
